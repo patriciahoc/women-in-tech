@@ -1,6 +1,6 @@
 # Women in Tech 👩🏻‍💻 
 
-### Nessa lista você encontra comunidades, ong's, mulheres e projetos que **incentivam**, **apoiam** e **encorajam** outras mulheres (cis, trans, deficientes, pretas e etc) a se inserirem na carreira de TI. 
+### Nessa lista você encontra comunidades, ong's, mulheres e projetos que **incentivam**, **apoiam** e **encorajam** mulheres (cis, trans, deficientes, pretas e etc) a se inserirem na carreira de TI. 
 
 <br>
 
