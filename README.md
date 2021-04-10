@@ -113,4 +113,5 @@
 - [Mariana Torres](https://www.linkedin.com/in/marianalopestorres/)
 - [{Reprograma}](https://www.instagram.com/reprogramabr/)
 - [Se candidate, mulher!](https://www.instagram.com/secandidatemulher/)
+- [Currículo para Elas ](https://curriculoparaelas.com.br/)
 
