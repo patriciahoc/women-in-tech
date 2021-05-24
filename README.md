@@ -82,6 +82,7 @@
 - [Perifacode](https://www.instagram.com/perifacode/)
 - [Podprogramar](https://www.instagram.com/podprogramar/)
 - [Programação para elas](https://www.instagram.com/programacaoparaelas/)
+- [PretaLab](https://instagram.com/pretalab_?utm_medium=copy_link)
 - [Programacaoparatodes](https://www.instagram.com/programacaoparatodes/)
 - [Programaria](https://www.instagram.com/programaria/)
 - [Pyladies Brasil](https://www.instagram.com/pyladiesbrasil/)
